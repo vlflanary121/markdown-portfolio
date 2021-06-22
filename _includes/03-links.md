@@ -1,1 +1,1 @@
-https://www.instagram.com/flanary.o.connor/
+[Insta](https://www.instagram.com/flanary.o.connor/)
